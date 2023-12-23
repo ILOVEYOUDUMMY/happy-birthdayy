@@ -1,2 +1,0 @@
-# happy-birthdayy
-happy birthdaay
